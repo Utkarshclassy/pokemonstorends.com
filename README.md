@@ -1,0 +1,1 @@
+# pokemonstorends.com
